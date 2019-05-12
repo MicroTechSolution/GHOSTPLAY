@@ -1,0 +1,2 @@
+# GHOSTPLAY
+Now a days the Online Gamers have the problem of staying AFK in a game. Now, what does AFK really means? AFK means to stay away from the keyboard and to convey to your co-player that I have leave the game or I will stay Idle for some while and should not depend on me. So due to this team might lose the game or the player might get banned which is no considerable. To solve this Problem, we have “GHOSTPLAY” which will save gamers from getting banned or losing the game
